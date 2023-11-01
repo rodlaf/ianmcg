@@ -1,6 +1,6 @@
 
 
-![](https://icwabd.com/53447F98-AE2E-498A-BB92-C984B85CCE55.jpeg)
+![](https://icwabd.com/53447F98-AE2E-498A-BB92-C984B85CCE55.jpeg){ width=250px }
 
 
 
