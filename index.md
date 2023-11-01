@@ -4,7 +4,7 @@ title: Home
 permalink: /
 ---
 
-![A picture of me](/assets/38D3C87E-5F91-4CDE-AAB1-5A4CB98BFFED.png){: width="230" }
+![A picture of me](https://rodneylafuente.com/assets/B3861A81-C522-42C1-81B3-2778E8EBA382.jpeg){: width="230" }
 
 
 
