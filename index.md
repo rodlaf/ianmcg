@@ -1,6 +1,6 @@
 
 
-![](https://rodneylafuente.com/assets/B3861A81-C522-42C1-81B3-2778E8EBA382.jpeg)
+![](https://icwabd.com/53447F98-AE2E-498A-BB92-C984B85CCE55.jpeg)
 
 
 
